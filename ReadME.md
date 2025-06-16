@@ -1,3 +1,1 @@
-# Post your notes and assignment Here
-
-## Rules and Regulation
+# Post your Assignment Here
